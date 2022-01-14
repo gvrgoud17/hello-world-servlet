@@ -31,4 +31,4 @@ hai
 om namashivaya
 hai am venkat
 07/15/2021 thrusday
-14/01/2022 
+14/01/2022 FRIDAY
